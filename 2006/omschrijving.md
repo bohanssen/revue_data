@@ -1,5 +1,5 @@
 # Samenvatting
-bla bla
+bla
 # Achtergrond
 ## Medewerkers
 bla bla bla
