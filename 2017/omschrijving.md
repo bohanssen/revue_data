@@ -1,5 +1,5 @@
 # Samenvatting
-<div>For example, German is full of ä, ö, ü and ß.</div><div>
+<div>For example, German is full</div><div>
 # Achtergrond</div><div>hello
 ## Medewerkers
 bla bla bla
