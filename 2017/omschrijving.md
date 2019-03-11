@@ -1,5 +1,5 @@
 # Samenvatting
-bla bla<div>For example, German is full of ä, ö, ü and ß.</div><div>
+<div>For example, German is full of ä, ö, ü and ß.</div><div>
 # Achtergrond
 ## Medewerkers
 bla bla bla
