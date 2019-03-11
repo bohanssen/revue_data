@@ -4,7 +4,7 @@ bla bla
 ## Medewerkers
 bla bla bla
 ## Subtitel
-bla bla
+bla bla bla
 
 # About markdown
 http://demo.showdownjs.com/
