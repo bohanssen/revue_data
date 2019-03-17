@@ -2,7 +2,7 @@
 bla bla
 # Achtergrond
 ## Medewerkers
-bla bla bla
+bla bla
 ## Subtitel
 bla bla bla
 
