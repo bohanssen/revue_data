@@ -3,7 +3,6 @@ bla bla bla
 
 # Achtergrond
 ## Medewerkers
-- Bo Hanssen
 
 ## Subtitel
 bla bla bla
