@@ -1,9 +1,8 @@
 # Samenvatting
 bla bla bla
-
 # Achtergrond
 ## Medewerkers
-
+bla bla bla
 ## Subtitel
 bla bla bla
 
