@@ -1,8 +1,1 @@
-# Samenvatting
-bla bla bla
-
-# About markdown
-http://demo.showdownjs.com/
-
-## Spelers
-Bo Hanssen
+__nog in te vullen__
