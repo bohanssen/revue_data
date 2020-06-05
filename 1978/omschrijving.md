@@ -1,1 +1,1 @@
-__nog in te vullen__
+De carnavalsvereniging verkeerde in zwaar weer en er was eigenlijk geen geld voor activiteiten te organiseren. Dus kwamen 3 Elsloonaren, alle drie zittend als lid van de Sajelaire, op het idee om een bonte avond te organiseren met artiesten (mensen) vanuit het dorp. Er werden sketches geschreven, gezongen, muziek gemaakt en gedanst. Dit was meteen een groot succes een uitverkochte zaal bij zaal Raven aan de Stationsstraat.
