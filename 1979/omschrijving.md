@@ -7,3 +7,76 @@ Tijdens de scene van het orkest de “Londen Symphoniker” kwam Jacques Wintrae
 De achterwand van hert decor bestond uit los staande spaanplaten van 120 x 240 cm. Hij knalde een spaanplaat omver die tot grote hilariteit van het publiek op de orkestleden viel. Gelukkig raakte niemand gewond bij deze niet voorziene  act.
 
 Tijdens deze revue werd de carnavalsschlager 1979 gepresenteerd “In Aelse viere veer vastelaovend”, gezongen door Trees Aelmans-Hoeveler met begeleiding van De Maasgalmkapel o.l.v. Chrit Everaers.
+
+**Ideeén en teksten:**
+* Fons Meyers
+* Piet Ronden
+* Leo Ummels
+
+**Decor:**
+* Peter Hermans
+* Jean Miller
+
+**Geluid:**
+* Jo Willems
+* Louis Driessen
+
+**Belichting:**
+* Mart Meyers
+* Hub Spronkmans
+
+**Rekwisieten:**
+* Willy Vaessen
+* Roger Pepels
+* Dimphy Doornbosch
+
+**Grime:**
+* Elly Roosen
+* Ruud Huynen
+
+**Regie:**
+* Fons Meyers
+* Piet Ronden
+
+in samenwerking met de stichting LIMERO
+
+
+**Mitwirkende:**
+* Maasgalmkapel o.Lv. Chrit Everaers
+* Jongerenkoor Escolum
+* Toneelgroep Pallieter
+* Hub Meyers
+* Jaak Wintraecken
+* Lies Gorissen
+* Paul Daemen
+* Harie Lemmens
+* Jan Feron
+* Sinne Sietsema
+* Jack Meyers
+* Sjef Bours
+* Leo Ummels
+* Jan Wiltink
+* Albert Philips
+* Benny Schepers
+* Jo Collard
+* Mia Meyers
+* Annemie Beckers
+* Nel Dohmen
+* Tet Vanmulken
+* Riet v. Loenen
+* Geerling Brands
+* Fons Meyers
+* Cor Heutmeekers
+* Jan Meyers
+* Trees Aelmans
+* René Snellings
+* Harie Vranken
+* Jupp Bohlem
+* René Chappin
+* Henny Vosdellen
+* Jos Meyers
+* Pierre Lemmens
+* Gerard Beckers
+* Liesbeth Steps
+* Marij Ubachs
+* Jacq Spronkmans
