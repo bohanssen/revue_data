@@ -68,7 +68,7 @@ ers, bas; Louis Driessen, drum; Jac. Spronkmans, gitaar: Piet Renkens, percussio
 
 20.00 oer   ’t Anker weurt gelich veur ’n 4 oer doerende reis door ’t léntj van de Humor.
 
-+ 24.00 oer : Nachbal mit PIET en FRANS (en uch allemaol)
++24.00 oer : Nachbal mit PIET en FRANS (en uch allemaol)
 
  
 ## Aan dees Revue wirke mit:
